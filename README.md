@@ -89,7 +89,7 @@
 ## 📫 Let's Connect
 
 * Linkedin: https://www.linkedin.com/in/charankumars2000/
-* GitHub: https://github.com/CharanKumarS7887
+* GitHub: https://github.com/Chirukhush
 * Gmail: charanyesemail@gmail.com
 
 ---
